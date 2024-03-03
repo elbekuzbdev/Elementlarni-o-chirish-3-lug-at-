@@ -1,0 +1,1 @@
+# Elementlarni-o-chirish-3-lug-at-
